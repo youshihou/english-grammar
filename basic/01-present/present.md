@@ -133,159 +133,168 @@
 - No, I am not. No, I’m not. 
 - Yes, I am
 
+#### Unit 5 I do/work/like etc. (present simple)
 
-he thinks
-it flies
-he dances
-she has
-it finishes
+- he thinks
+- it flies
+- he dances
+- she has
+- it finishes
 
-They live
-I eat X She eats
-He plays
-They go
-He sleeps
+- They live
+- I eat (X She eats)
+- He plays
+- They go
+- He sleeps
 
-opens X open
-closes
-teaches
-meet
-washes
-costs
-cost
-boils
-like
-likes
+- opens (X open)
+- closes
+- teaches
+- meet
+- washes
+- costs
+- cost
+- boils
+- like
+- likes
 
-I never go to the cinema
-Martina always works hard
-Children usually likes chocolate X like
-Jackie always enjoys parties
-I often forget people’s names
-Sam never watches TV
-We usually have dinner at 7.30
-Kate always wears nice clothes
+- I never go to the cinema
+- Martina always works hard
+- Children usually likes chocolate (X like)
+- Jackie always enjoys parties
+- I often forget people’s names
+- Sam never watches TV
+- We usually have dinner at 7.30
+- Kate always wears nice clothes
 
-I never read in bed
-I often get up before 7 o’clock
-I always go to work/school by bus
-I sometimes drink coffee in the morning
-
-
-
-Anna doesn’t play the piano very well
-They don’t know my phone number
-We don’t work very hard
-He doesn’t have a bath every day
-You don’t do the same thing every day
-
-doesn’t like classical music
-like classical music
-doesn’t like boxing X don’t
-likes boxing
-don’t like boxing
-Ben and Sophie like horror movies
-Kate doesn’t like horror movies
-I like horror movies
-
-I don’t go to the theatre very often
-I never go to the theatre
-I often go to the theatre
-
-I don’t ride a bike very often
-I never ride a bike
-I often ride a bike
-
-I don’t eat in restaurants very often
-I never eat in restaurants
-I often eat in restaurants
-
-I don’t travel by train very often
-I never travel by train
-I often travel by train
-
-doesn’t use
-don’t go
-doesn’t wear
-don’t know
-doesn’t cost
-don’t see
-
-don’t know
-doesn’t talk
-doesn’t drink X drinks
-don’t believe
-like
-doesn’t eat
+- I never read in bed
+- I often get up before 7 o’clock
+- I always go to work/school by bus
+- I sometimes drink coffee in the morning
 
 
-Do you play tennis
-Does Lucy live near here
-Does his friends play tennis (/Tom’s friends/they)
-Does your brother speak English (/he)
-Do you do yoga every morning
-Does Paul go away a lot (/he)
-Do you want to be famous
-Does Anna work hard (/she)
+#### Unit 6 I don't ... (present simple negative)
 
-How often do you watch TV
-What do you want for dinner
-Do you like football
-Does your brother like football
-What do you do in your free time
-Where does your sister work
-Do you always have breakfast
-What does this word mean
-Does it snow here in winter
-What time do you usually go to bed
-How much does it cost to phone New York
-What do you usually have for breakfast
+- Anna doesn’t play the piano very well
+- They don’t know my phone number
+- We don’t work very hard
+- He doesn’t have a bath every day
+- You don’t do the same thing every day
 
-Do you enjoy 
-do you start
-Do you work
-does you go X do
-does he do
-does he teach
-Does he like
+- doesn’t like classical music
+- like classical music
+- doesn’t like boxing (X don’t)
+- likes boxing
+- don’t like boxing
+- Ben and Sophie like horror movies
+- Kate doesn’t like horror movies
+- I like horror movies
 
-No, I don’t. Yes I do.
-Yes, I do. No, I don’t. 
-Yes, it does. No, it doesn’t. 
-Yes, I do. No, I don’t. 
+- I don’t go to the theatre very often
+- I never go to the theatre
+- I often go to the theatre
+
+- I don’t ride a bike very often
+- I never ride a bike
+- I often ride a bike
+
+- I don’t eat in restaurants very often
+- I never eat in restaurants
+- I often eat in restaurants
+
+- I don’t travel by train very often
+- I never travel by train
+- I often travel by train
+
+- doesn’t use
+- don’t go
+- doesn’t wear
+- don’t know
+- doesn’t cost
+- don’t see
+
+- don’t know
+- doesn’t talk
+- doesn’t drink (X drinks)
+- don’t believe
+- like
+- doesn’t eat
 
 
+#### Unit 7 Do you ...? (present simple questions)
 
-No, she doesn’t  X she isn’t
-Yes, she does
-She is playing piano  X the
-Yes, he does
-Yes, he does  X is
-He is cleaning window  X a
-No, they don’t  X aren’t
-Yes, they do
-They are watching TV  X They teach
+- Do you play tennis
+- Does Lucy live near here
+- Does his friends play tennis (/Tom’s friends/they)
+- Does your brother speak English (/he)
+- Do you do yoga every morning
+- Does Paul go away a lot (/he)
+- Do you want to be famous
+- Does Anna work hard (/she)
 
-don’t
-are
-does
-is
-don’t
-are X do
-does
-don’t X doesn’t
+- How often do you watch TV
+- What do you want for dinner
+- Do you like football
+- Does your brother like football
+- What do you do in your free time
+- Where does your sister work
+- Do you always have breakfast
+- What does this word mean
+- Does it snow here in winter
+- What time do you usually go to bed
+- How much does it cost to phone New York
+- What do you usually have for breakfast
 
-is singing
-she wants
-are you use X do
-you are sitting
-I don’t understand
-I’m going
-Are you come X coming
-dose your father finish
-I’m not listening
-He is cooking
-usually doesn’t drive X doesn’t usually drive
-usually walks
-doesn’t like
-She prefers
+- Do you enjoy 
+- do you start
+- Do you work
+- does you go (X do)
+- does he do
+- does he teach
+- Does he like
+
+- No, I don’t. Yes I do.
+- Yes, I do. No, I don’t. 
+- Yes, it does. No, it doesn’t. 
+- Yes, I do. No, I don’t. 
+
+
+#### Unit 8 I am doing (present continuous) and I do (present simple)
+
+- No, she doesn’t  (X she isn’t)
+- Yes, she does
+- She is playing piano  (X the)
+- Yes, he does
+- Yes, he does  (X is)
+- He is cleaning window  (X a)
+- No, they don’t  (X aren’t)
+- Yes, they do
+- They are watching TV  (X They teach)
+
+- don’t
+- are
+- does
+- is
+- don’t
+- are (X do)
+- does
+- don’t (X doesn’t)
+
+- is singing
+- she wants
+- are you use (X do)
+- you are sitting
+- I don’t understand
+- I’m going
+- Are you come (X coming)
+- dose your father finish
+- I’m not listening
+- He is cooking
+- usually doesn’t drive  (X doesn’t usually drive)
+- usually walks
+- doesn’t like
+- She prefers
+
+
+#### Unit 9 I have ... and I've got ...
+
