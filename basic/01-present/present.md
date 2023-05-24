@@ -298,3 +298,36 @@
 
 #### Unit 9 I have ... and I've got ...
 
+- He’ve got a new job (X He’s)
+- Have you got an umbrella
+- We’ve got a lot work to do
+- I haven’t got your phone number
+- Has your father got a car
+- How much money have we got
+
+- I don’t have many clothes
+- Does Tom has a brother (X have)
+- How many children do they have
+- Do you have any questions
+- Sam doesn’t has a job (X have)
+
+- He has got a bike
+- He hasn’t got a dog (He doesn’t have a dog)
+- He has got a mobile phone (He has a mobile phone)
+- He hasn’t go a watch (He doesn’t have a watch)
+- He has got two brothers and a sister (He has two brothers and a sister)
+- I haven’t got a dog. I have got a dog.（I have a dog. I don’t have a dog)
+- I’ve got a bike. I haven’t got a bike. 
+- I’ve got a brothers. I haven’t got a sisters.  (X I’ve got a brother and a sister. I have a brother and a sister.
+
+- has
+- don’t have
+- have
+- don’t have
+- doesn’t have
+
+- has got a lot of friends
+- hasn’t got a key
+- haven’t got much time
+- has got six legs
+- haven’t a job
