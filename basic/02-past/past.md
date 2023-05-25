@@ -92,3 +92,67 @@
 - didn’t have
 - did you do
 - knew (X didn’t know)
+
+
+#### Unit 13 I was doing (past continuous)
+
+- were at the cinema. were watching a film. 
+- was in his car. He was driving. 
+- Tracey was at the station. She was waiting for a train. 
+- Mr and Mrs Hall were in the park. They were walking. 
+- I was in the office. I was working.  (I was in a cafe. I was having a drink with some friends)
+
+- was playing tennis
+- She was reading newspaper (X a/the paper/newspaper)
+- She was cooking (lunch)
+- She was having breakfast 
+- She was cleaning (X the kitchen)
+
+- What were you doing 
+- Was it raining
+- Why was Sue driving
+- Was Tom wearing 
+
+- He wasn’t carrying a bug (X was)
+- He wasn’t going to the dentist
+- He was eating an ice cream
+- He wan’t carrying an umbrella
+- He wan’t going home
+- He was wearing a hat
+- He wan’t riding a bicycle
+
+
+#### Unit 14 I was doing (past continuous) and I did (past simple)
+
+- happened 
+- was painting
+- fell
+- arrived
+- got
+- were waiting
+- was walking
+- met
+- was going
+- was carrying
+- stopped
+
+- was studying
+- Was Paul called (X Did Paul call)
+- called 
+- was having
+- wasn’t go (X didn’t go)
+- were you driving
+- stopped
+- wasn’t drive (X wasn’t driving)
+- Was your team won (X Did your team win)
+- wasn’t play (X didn’t play)
+- were you broke (X did you break)
+- played (X were playing)
+- was kicking (X kicked)
+- hit
+- Were you saw (X Did you see)
+- was wearing
+- did you do (X were you doing)
+- lost
+- did you get
+- climbed
