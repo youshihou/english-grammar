@@ -132,3 +132,41 @@
 - I’ve been learning English for two months
 - I’ve known her for seven years (I’ve known Chris for a long time)
 - I’ve had a shower for eight hours (I’ve had a headache since I got up this morning)
+
+
+#### Unit 20 I have done (present perfect) and I did (past)
+
+- started it
+- arrived
+- she went away 
+- I worn it (X wore)
+ 
+- finished
+- OK
+- did you finish
+- OK
+- died
+- did you be(X Where were you/Where did you go)
+
+- played
+- did you go
+- Have you ever met
+- didn’t be (X wasn’t)
+- has visited
+- have switched  (X switched)
+- have lived (X lived)
+- didn’t be (X haven’t been)
+
+- Did you have
+- was
+- Have you seen
+- went
+- didn’t see (X haven’t seen)
+- has worked (has been working)
+- was
+- worked
+- didn’t enjoy
+- saw (X have seen)
+- did never speak (X have never spoken)
+- Have you ever spoken
+- met
