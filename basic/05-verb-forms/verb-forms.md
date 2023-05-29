@@ -47,7 +47,7 @@
 - open
 
 
-#### Unit 24 regular and irregular verbs
+#### Unit 24 Regular and irregular verbs
 
 - got 
 - brought
