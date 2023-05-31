@@ -296,3 +296,41 @@
 - there are (X There have been)
 - there will be (there are)
 
+
+#### Unit 39 It …
+
+- It’s cold
+- It’s windy
+- It’s warm (X It’s sunny/fine. It’s a nice day)
+- It’s snowing
+- It’s cloudy
+
+- It is
+- Is it
+- is it 
+- it is
+- It’s
+- Is it
+- is it
+- It’s
+- It’s
+
+- How far is it from the hotel to the beach
+- How far is it from New York to Washington
+- How far is it from your house to the airport
+
+- It
+- There (X It)
+- It
+- There
+- it
+- There (X It)
+- It (X there)
+- It
+
+- It’s nice to see you again
+- It’s impossible to work here
+- It’s interesting to make friends (X It’s easy to make friends)
+- It’s easy to visit different places (X It’s interesting to visit different places)
+- It’s dangerous to go out alone
+
