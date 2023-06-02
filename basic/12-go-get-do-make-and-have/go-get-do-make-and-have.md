@@ -1,7 +1,7 @@
 #### Unit 55 go to … go on … go for … go -ing
 
 - to
-- '-'
+- ' - '
 - for
 - to
 - on
@@ -9,7 +9,7 @@
 - for
 - to (X on)
 - to
-- '-'
+- ' - '
 - for (X on)
 - for
 - on
