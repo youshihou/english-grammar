@@ -315,7 +315,7 @@
 - Both of them like cooking
 - Neither of them play the piano (X can play the piano)
 - Both of them eat seafood
-- Neither of them interested in sport (is interested in sport)
+- Neither of them interested in sport (X is interested in sport)
 
 
 
