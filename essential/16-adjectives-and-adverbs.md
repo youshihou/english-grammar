@@ -243,5 +243,5 @@
 - They’re too young to get married
 - It’s too dangerous to go out at night
 - It’s too late to phone Sue now (now)
-- I was to surprised to say anything
+- I was too surprised to say anything
 
