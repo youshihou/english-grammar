@@ -318,5 +318,78 @@
 - Neither of them interested in sport (X is interested in sport)
 
 
+#### Unit 83 a lot   much   many
 
+- many
+- much
+- many
+- many
+- much
+- much
+- many
+- How many
+- How much
+- How much
+- How many
+
+- much time
+- many countries
+- many people
+- much luggage
+- many times
+
+- a lot of interesting things
+- a lot of accidents
+- a lot of fun
+- a lot of traffic
+
+- a lot of snow
+- OK
+- a lot of money 
+- OK
+- a lot (X OK)
+- OK (X a lot)
+
+- She plays tennis a lot
+- He doesn’t use his car much (a lot)
+- He doesn’t go out much (a lot)
+- She travels a lot
+
+
+#### Unit 84 (a) little   (a) few
+
+- a few
+- a little
+- a few
+- a little
+- a few
+
+- a little milk
+- A few days 
+- a little Russian
+- a few friends
+- a few times
+- a few chairs
+- a little fresh air
+
+- very little coffee
+- very little rain
+- very few hotels
+- very little time
+- Very few people
+- very little work
+
+- A few
+- a little
+- little 
+- few
+- a little
+- few (X little)
+
+- a little luck
+- a few things
+- OK
+- a few questions
+- few people
+- OK
 
