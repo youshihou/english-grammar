@@ -11,7 +11,7 @@
 - phones
 - she hadn’t phoned (X she didn’t phone)
 - you were thinking
-- I decided
+- I decided 
 - are you looking
 - It isn’t raining (X It doesn’t rain)
 - He wasn’t looking
