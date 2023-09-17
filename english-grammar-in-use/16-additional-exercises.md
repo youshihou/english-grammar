@@ -14,7 +14,7 @@
 - I decided    
 - are you looking
 - It isn’t raining (X It doesn’t rain)
-- He wasn’t looking
+- He wasn’t looking 
 - we went
 - she prepared (X she was preparing)
 - We don’t want (X We didn’t want)
