@@ -19,7 +19,7 @@
 - she prepared (X she was preparing)
 - We don’t want (X We didn’t want)
 - we don’t stay (X we didn’t stay)
-- told
+- told 
 - he didn’t believe
 - He thought
 - I joked (X I was joking)
