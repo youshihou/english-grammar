@@ -22,7 +22,7 @@
 - told 
 - he didn’t believe
 - He thought
-- I joked (X I was joking)
+- I joked (X I was joking) 
 
 
 ### Present and past (Units 1-14)
