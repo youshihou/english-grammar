@@ -29,7 +29,7 @@
 
 ### 2
 - didn’t go
-- wears (X is wearing)
+- wears (X is wearing) 
 - have been to (X went)
 - haven’t heard 
 - is (X is being)
