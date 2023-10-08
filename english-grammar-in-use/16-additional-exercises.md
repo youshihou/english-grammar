@@ -21,7 +21,7 @@
 - we don’t stay (X we didn’t stay)
 - told 
 - he didn’t believe
-- He thought 
+- He thought  
 - I joked (X I was joking)  
  
 
