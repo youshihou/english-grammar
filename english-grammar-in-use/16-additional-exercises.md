@@ -18,7 +18,7 @@
 - we went  
 - she prepared (X she was preparing) 
 - We don’t want (X We didn’t want) 
-- we don’t stay (X we didn’t stay)
+- we don’t stay (X we didn’t stay) 
 - told 
 - he didn’t believe
 - He thought  
