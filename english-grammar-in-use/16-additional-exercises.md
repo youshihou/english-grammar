@@ -15,7 +15,7 @@
 - are you looking
 - It isn’t raining (X It doesn’t rain)
 - He wasn’t looking 
-- we went  
+- we went   
 - she prepared (X she was preparing) 
 - We don’t want (X We didn’t want) 
 - we don’t stay (X we didn’t stay) 
