@@ -12,7 +12,7 @@
 - she hadn’t phoned (X she didn’t phone)
 - you were thinking
 - I decided     
-- are you looking
+- are you looking 
 - It isn’t raining (X It doesn’t rain)
 - He wasn’t looking 
 - we went   
